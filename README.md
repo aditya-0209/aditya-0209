@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **imadi9415980@gmail.com**
 
-- ⚡ Fun fact **I think I am Dumb Lol**
+- ⚡ Fun fact **I think I am Funny Lol**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
